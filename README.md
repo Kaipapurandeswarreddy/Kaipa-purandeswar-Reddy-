@@ -107,9 +107,9 @@ I'm actively looking for opportunities to:
 
 | Platform | Link |
 |----------|------|
-| **Email** | [Add your email] |
+| **Email** | [My Email](purandeswarreddykaipa@gmail.com)|
 | **GitHub** | [Kaipapurandeswarreddy](https://github.com/Kaipapurandeswarreddy) |
-| **LinkedIn** | [Add your LinkedIn] |
+| **LinkedIn** | [purandeswar](https://www.linkedin.com/in/kaipa-purandeswar-reddy-3718a232a?utm_source=share_via&utm_content=profile&utm_medium=member_android) |
 
 ---
 
